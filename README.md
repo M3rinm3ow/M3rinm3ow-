@@ -1,3 +1,5 @@
+     💉🧋🩵BYI🩵🧋💉
+
 ♤•Don't force ships onto me I don't fw that and might just end up hiding u </3•♤
 
 °•im multishiper but I also hate a lot of ships like dottolone,kavhaitham,varflins,wriolette,lohnea or just any ship with lohen•°
